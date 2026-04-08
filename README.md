@@ -36,7 +36,7 @@ Hi 👋, I'm Sanjeeda Islam
 
 📫 Contact
 
-• Email: your-email@gmail.com
+• Email: sanjidamoumou@gmail.com
 
 ⚡ Interests
 
